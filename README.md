@@ -5,6 +5,6 @@ Repositorio novo referente a aula do dia 28082019
 
 A História sem fim
 
-Senhor dos Aneis
+Trilogia do Senhor dos Aneis
 
 Blade Runner
