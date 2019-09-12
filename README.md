@@ -8,6 +8,6 @@ teste de modificação com conflito.
 
 A História sem fim
 
-Senhor dos Aneis
+Trilogia do Senhor dos Aneis
 
 Blade Runner
